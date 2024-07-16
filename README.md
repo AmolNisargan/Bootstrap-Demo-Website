@@ -78,4 +78,13 @@ For any inquiries or feedback, please contact:
 
 - **Email**: nisargan.ap@gmail.com.
 - Project snapshots:
-- ![Capture 0](https://github.com/user-attachments/assets/50c915ab-664e-41ca-bb47-49bc4ce10bbd)
+![Capture 0](https://github.com/user-attachments/assets/0932bea5-74d3-496b-9501-852c8df84296)
+
+
+![Capture 1](https://github.com/user-attachments/assets/50f77c8c-89bd-4a2f-b86c-7d44f3e6fb29)
+
+![Capture 2](https://github.com/user-attachments/assets/0982af58-ca99-4379-8f0f-f2bee753139f)
+
+![Capture 3](https://github.com/user-attachments/assets/ade18805-95a4-437a-9954-26da3be8ed51)
+
+
